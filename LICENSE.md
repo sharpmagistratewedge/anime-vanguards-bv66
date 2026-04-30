@@ -1,4 +1,4 @@
-
+anime vanguards Script advanced is the best anime vanguards Script, featuring esp and teleport. Safe and powerful for all your needs.
 
 
 
